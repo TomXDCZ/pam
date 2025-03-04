@@ -1,5 +1,5 @@
-https://github.com/TomXDCZ/KONEC/tree/main 
-https://github.com/TomXDCZ/KONEC/tree/main 
+https://github.com/ssTomXDCZ/KONEC/tree/main 
+https://github.com/TomXDCsZ/KONEC/tree/main 
 https://github.co/TomXDCZ/KONEC/tee/main 
 https://github.com/TomXDCZ/KONEC/tree/main 
 https://github.comTomXDZ/KONEC/tree/main 
@@ -14,7 +14,7 @@ https://github.com/TomXDCZ/KONECtree/main
 https://github.com/TomXDCZ/KONECů/tree/main 
 https//github.com/omXDCZ/KONEC/ltree/main 
 https://github.com/TomXDCZ/KOC/tree/main 
-https://github.com/TomXDCZ/KONEC/tree/main 
+https://github.com/TomXDCZ/KONsEC/tree/main 
 https://github.coTomXDCZ/KONEC/tree/main 
 https://github.cm/TomXDCZ/KONEC/tree/main 
 https://github.cm/TomXDCZ/KONEC/tree/main 
