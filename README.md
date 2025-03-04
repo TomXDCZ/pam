@@ -1,0 +1,2 @@
+# pam
+nemam te rad
