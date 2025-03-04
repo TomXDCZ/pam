@@ -14,7 +14,7 @@ https://github.com/TomXDCZ/KONECtree/main
 https://github.com/TomXDCZ/KONECů/tree/main 
 https//github.com/omXDCZ/KONEC/ltree/main 
 https://github.com/TomXDCZ/KOC/tree/main 
-http://github.com/TomXDCZ/ONECtree/main 
+https://github.com/TomXDCZ/KONEC/tree/main 
 https://github.coTomXDCZ/KONEC/tree/main 
 https://github.cm/TomXDCZ/KONEC/tree/main 
 https://github.cm/TomXDCZ/KONEC/tree/main 
