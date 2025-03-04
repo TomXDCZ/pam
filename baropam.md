@@ -1,5 +1,5 @@
-htpps://github.com/TomXDC/KONEC/tree/main 
-https://github.com/TomXDZ/KNEC/tree/main 
+htpps://github.com/TomXDC/KONEC/tree/main; 
+https://github.com/TomXDZ/KNEC/tree/main; 
 https://github.co/TomXDCZ/KONEC/tee/main 
 https://github.com/TomXDCZ/KONEC/tree/main 
 https://github.comTomXDZ/KONEC/tree/main 
